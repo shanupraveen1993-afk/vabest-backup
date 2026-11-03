@@ -16,7 +16,7 @@ Generated: 2026-06-29 | Based on: PDF booklet + 69 WhatsApp images + competitor 
 | Product Count | 120+ models |
 | ISO | 9001:2008 Certified — Cert. Regn. No. 765546 |
 | UKAS/GIC | Quality Management certified |
-| Email | skbindustry@gmail.com / skbindustry@gmail.com |
+| Email | skbindustry@gmail.com / info@skbpumps.in |
 | Website | www.vabest.in |
 | Address | No.334/2, 14-A, Rajagopal Layout, Elango Nagar, Peelamedu, Coimbatore – 641 004 |
 | Tagline | "Every Drop of Water Counts — Save Blue, Live Green" |
@@ -456,7 +456,7 @@ India map with pins: Coimbatore, Chennai, Kolkata, Kerala + dealer network dots
 
 **Section 5 — Direct Contact**
 "Already a dealer or have a bulk inquiry?"
-📞 [PHONE] | ✉ skbindustry@gmail.com | skbindustry@gmail.com
+📞 [PHONE] | ✉ skbindustry@gmail.com | info@skbpumps.in
 
 ---
 
